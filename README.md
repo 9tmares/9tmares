@@ -6,7 +6,7 @@
 - Been coding for years and looking to learn new languages for more applications.
 <br>
 I’m down to collaborate on any interesting coding projects.
-<br>
+
 > How to reach me: is there pm here? or commenting anything? 
 
 <!---
